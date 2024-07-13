@@ -9,7 +9,7 @@ Regarder Dub France ➥ [Elyas (2024) Film complet en ligne gratuit](https://sbr
 
 Regarder Dub English ➥ [Elyas (2024) Film complet en ligne gratuit](https://sbrhd.biz/en/movie/1154215)
 
-<img src="https://image.tmdb.org/t/p/original/7xWrkSqAaUQlM3IX6mZtwlOHakm.jpg">
+<img src="https://image.tmdb.org/t/p/original/aVDgBMD6zNU9XKRJF5s7L9X82WV.jpg">
 
 Tout public
 Victime d’un complot, le jeune Edmond Dantès est arrêté le jour de son mariage pour un crime qu’il n’a pas commis. Après quatorze ans de détention au château d’If, il parvient à s’évader. Devenu immensément riche, il revient sous l’identité du comte de Monte-Cristo pour se venger des trois hommes qui l’ont trahi.
